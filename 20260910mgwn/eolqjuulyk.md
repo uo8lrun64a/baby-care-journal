@@ -29,12 +29,19 @@
 
 ## 推荐站点
 
-- [深圳三代试管生男孩——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/8.html)
-- [郑大一附院解冻流程与北医三院移植人工周期解冻流程图详解](https://www.wuzhenzhi.cn/81.html)
-- [移植后吃屈他维林多少？屈他维林片在胚胎移植后的作用详解](https://www.wuzhenzhi.cn/82.html)
-- [试管移植后能吃麦子吗？麦子对孕妇和胚胎着床有影响吗？](https://www.wuzhenzhi.cn/83.html)
-- [北医三院取卵a组b组c组是什么？分组流程与患者须知科普](https://www.wuzhenzhi.cn/84.html)
-- [试管胚胎移植后梦到老人去世与结婚是什么情况？科学解读试管移植前后的梦境](https://www.wuzhenzhi.cn/85.html)
-- [西北妇幼试管婴儿流程与江西省妇幼保健院试管流程图视频详解](https://www.wuzhenzhi.cn/86.html)
+- [['https://www.anyhdlyb.cn/2568896829849.html', None]](https://www.anyhdlyb.cn/2568896829849.html)
+- [['https://www.3899234.com/20250927-8.html', '供卵机构&吹空调感冒属于什么感冒-吹空调感冒了怎么办']](https://www.3899234.com/20250927-8.html)
+- [['https://www.eduency.com/115620575327.html', '深圳三代代怀公司,深圳第三代做试管可以选男女吗(深圳三代试管费用明细)']](https://www.eduency.com/115620575327.html)
+- [['https://www.hg00fj88.com/2150.html', '高龄女性促排要注意什么']](https://www.hg00fj88.com/2150.html)
+- [['https://www.sandwnot.com/126370034140.html', '大连试管婴儿流程：做试管婴儿有什么样的流程？']](https://www.sandwnot.com/126370034140.html)
+- [['https://www.gyzhixiao.cn/265.html', '深圳三代试管婴儿的希望之城！']](https://www.gyzhixiao.cn/265.html)
+- [['https://www.cmanrxrr.cn/1119713893537.html', None]](https://www.cmanrxrr.cn/1119713893537.html)
+- [['https://www.dyqlsu.com/20241231-224.html', '昆明优贝贝助孕评价真实分享：在昆明做试管助孕避坑的3个建议']](https://www.dyqlsu.com/20241231-224.html)
+- [['https://www.sgdaiyun.com/128685334038.html', '供卵代孕机构：胚胎等级怎么划分？试管胚胎等级？']](https://www.sgdaiyun.com/128685334038.html)
+- [['https://www.ewdboe.cn/404460800085.html', '备孕不只是叶酸：深圳助孕期间必须补充的关键营养']](https://www.ewdboe.cn/404460800085.html)
+- [['https://www.cecigou.cn/daihuaiyunfuwu/20250929/15016.html', '短方案一般取卵6个是正常的吗？']](https://www.cecigou.cn/daihuaiyunfuwu/20250929/15016.html)
+- [['https://www.cndcxc.com/daiyunketang/20251021/17088.html', '供卵借卵医院，取卵后出血是鲜红的正不正常？取卵后出血是怎么回事？']](https://www.cndcxc.com/daiyunketang/20251021/17088.html)
+- [['https://www.dygsdyw.com/226640722286.html', '内膜8.2可以怀孕吗（子宫内膜息肉同房出血）']](https://www.dygsdyw.com/226640722286.html)
+- [['https://www.chengyanghg.cn/328.html', '三代试管助孕正规性与费用详解，助您实现生育梦想']](https://www.chengyanghg.cn/328.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
