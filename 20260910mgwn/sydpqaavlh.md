@@ -357,13 +357,18 @@ A：美国出生纸+旅行证+户口本+疫苗翻译件，4证齐全即可。
 
 ## 推荐站点
 
-- [疫情后去香港查男女怎么做？详细流程与注意事项](https://www.wuzhenzhi.cn/30.html)
-- [试管什么时候能纳入医保？全国政策时间线与宁夏查询指南](https://www.wuzhenzhi.cn/31.html)
-- [南京做试管婴儿，医院成功率怎么看？数据解读与选院参考](https://www.wuzhenzhi.cn/32.html)
-- [做试管成功率想自己测？先看这些环节怎么评估才最准](https://www.wuzhenzhi.cn/33.html)
-- [试管住院能不能报销？移植术后住院费用怎么报一文说清](https://www.wuzhenzhi.cn/35.html)
-- [长沙做试管可以用医保报销多少钱一次?能报销多少一文说清](https://www.wuzhenzhi.cn/36.html)
-- [七细胞三级养囊成功率多少？移植二级七细胞能成功吗一文讲清](https://www.wuzhenzhi.cn/38.html)
-- [南昌一附医院(南昌大学第一附属医院)能做试管婴儿吗?做一次多少钱全解析](https://www.wuzhenzhi.cn/39.html)
+- [['https://www.hghbjm.com/252.html', '做试管内膜薄移植成功率高吗？子宫内膜薄试管移植一定不能成功吗？']](https://www.hghbjm.com/252.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguan/20251014/6040.html', '江岸区高龄失独家庭求助：这些供卵机构能提供哪些帮助？']](https://www.btwtjx.cn/wuhangongluanshiguan/20251014/6040.html)
+- [['https://www.chengyanghg.cn/336.html', '三代试管婴儿医院费用预算与选择指南']](https://www.chengyanghg.cn/336.html)
+- [['https://www.sasksjob.com/121652916199.html', '2026年第三代试管费用解析及价格调控策略']](https://www.sasksjob.com/121652916199.html)
+- [['https://www.syldezdhkj.cn/31165420655721.html', '美国代生包性别费用促排安全吗']](https://www.syldezdhkj.cn/31165420655721.html)
+- [['https://www.cd-hssf.com/227560695251.html', '2026山东试管助孕费用明细：是否会有变动？']](https://www.cd-hssf.com/227560695251.html)
+- [['https://www.xnnpbhdz.cn/30190162952552.html', '先处理积水还是先试管代生助孕机构 做试管代生助孕机构先处理积水还是先促排卵']](https://www.xnnpbhdz.cn/30190162952552.html)
+- [['https://www.ewdboe.cn/413924145207.html', None]](https://www.ewdboe.cn/413924145207.html)
+- [['https://www.esc45.com/111.html', '沈阳试管婴儿哪家医院成功率高']](https://www.esc45.com/111.html)
+- [['https://www.bjwdzxkj.cn/3801539681421.html', '代生高龄试管,试管代怀做得好,试管移植需要什么钱费用']](https://www.bjwdzxkj.cn/3801539681421.html)
+- [['https://www.cddyunw.com/304175451148.html', '试管助孕平台:试管婴儿移植后感冒了会影响*率吗']](https://www.cddyunw.com/304175451148.html)
+- [['https://www.sjb493.cn/19146706352028.html', '试管代生多少钱啊_有代生机构不,试管婴儿费用以及流程']](https://www.sjb493.cn/19146706352028.html)
+- [['https://www.dyokx.com/hangzhoudaihuaishiguan/458.html', '代生价格-子宫后位的最佳受孕姿势']](https://www.dyokx.com/hangzhoudaihuaishiguan/458.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
