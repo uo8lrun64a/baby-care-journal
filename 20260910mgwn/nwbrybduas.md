@@ -37,13 +37,18 @@ HCG值会随着准妈妈们的怀孕天数成倍增加，怀孕天数越多，�
 
 ## 推荐站点
 
-- [深圳武警医院试管成功率高吗？影响试管婴儿成功率的关键因素解析](https://www.wuzhenzhi.cn/72.html)
-- [试管移植后做梦生了男孩是啥意思？梦与着床成败的科学解读](https://www.wuzhenzhi.cn/73.html)
-- [移植内膜11.5c怎么样？移植内膜10.5B能移植吗？一文读懂内膜分型](https://www.wuzhenzhi.cn/74.html)
-- [泰国成功率试管婴儿机构怎么选？泰国第一批试管婴儿成功率全面解读](https://www.wuzhenzhi.cn/75.html)
-- [试管移植38-39天血值多少正常？HCG参考范围与解读一次讲清](https://www.wuzhenzhi.cn/76.html)
-- [移植12天血值1168正常吗？移植后第十三天血值79怎么办一文读懂HCG](https://www.wuzhenzhi.cn/77.html)
-- [试管移植后黄骨鱼可以吃吗？早孕期饮食安全一次说清](https://www.wuzhenzhi.cn/78.html)
-- [胚胎移植后可以吃地瓜吗？能喝益力多吗？饮食指南一次说清](https://www.wuzhenzhi.cn/79.html)
+- [['https://www.sjb493.cn/19293224530080.html', '长春代生选男女生孩子费用,促排卵到移植也不超五万']](https://www.sjb493.cn/19293224530080.html)
+- [['https://www.sasksjob.com/129662313108.html', '2026年优质私立生殖机构与三代试管技术指南']](https://www.sasksjob.com/129662313108.html)
+- [['https://www.ppmaas.com/guoneishiguanjigou/493.html', '做试管代孕最好的医院，国内供卵费用多少钱,hpv疫苗在哪里接种？各省市预约']](https://www.ppmaas.com/guoneishiguanjigou/493.html)
+- [['https://www.syldezdhkj.cn/31371045112700.html', '广西试管供卵机构医院排名重新洗牌，更新2026广西供卵试管中心排名 ,试管代生费用']](https://www.syldezdhkj.cn/31371045112700.html)
+- [['https://www.anyhdlyb.cn/2568896829849.html', None]](https://www.anyhdlyb.cn/2568896829849.html)
+- [['https://www.dyokx.com/gaolingzhuyun/147.html', '代生孩子服务-杭州私立三代试管婴儿医院排名前十有哪些？']](https://www.dyokx.com/gaolingzhuyun/147.html)
+- [['https://www.cndcxc.com/daiyunjiage/16961.html', '代生孩价格，人工干预双胞胎（双胎妊娠需要人工干预吗）']](https://www.cndcxc.com/daiyunjiage/16961.html)
+- [['https://www.xnnpbhdz.cn/35391631603602.html', '移植生化后，我做了哪些检查？,供卵代孕收费']](https://www.xnnpbhdz.cn/35391631603602.html)
+- [['https://www.cddyunw.com/421635933390.html', '重庆无需结婚证试管助孕医院指南']](https://www.cddyunw.com/421635933390.html)
+- [['https://www.sdwmtgccl.cn/17933049354866.html', '备孕能运动吗？助孕咨询专家解析备孕期间适合的运动']](https://www.sdwmtgccl.cn/17933049354866.html)
+- [['https://www.sgdaiyun.com/129635035180.html', '供卵增卵机构:反复生化妊娠可以做试管婴儿？反复生化妊娠能做试管吗？']](https://www.sgdaiyun.com/129635035180.html)
+- [['https://www.sandwnot.com/117311409429.html', '供卵医生电话']](https://www.sandwnot.com/117311409429.html)
+- [['https://www.hghbjm.com/89.html', '南昌做试管婴儿流程需要多久？']](https://www.hghbjm.com/89.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
